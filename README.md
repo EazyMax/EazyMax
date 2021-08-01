@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @EazyMax
+- 🌱 I’m currently learning ... nothing
